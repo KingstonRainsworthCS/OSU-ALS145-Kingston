@@ -28,5 +28,40 @@ ALS 145 Strategies for grad success
 * 10 Steps to Earning Awesome Grades Chapers: Intro, 1, 3, & 8
 
 ### Day 1 notes
+
+Ice breakers
+
 ### Day 2 notes
+
+Group meeting, finish draft for group contract
+
 ### Day 3 notes
+
+#### Locus of control
+
+Relates to how much control a person believe their abilities to affect events around them.
+
+Internal locus of control students believes success and failure lies within self rather than without (external), and thus is more likely to be successful
+
+Developed in 1966, by Rotter
+
+Internal locus + :
+
+Generally more successful, work hard, less likely to be influenced, take Responsibility
+
+Internal locus - :
+
+
+
+External Locus + :
+
+Good team player, can let go of stress, happier
+
+How to internalize locus:
+
+* set goals
+* develop your problem solving skills
+* care for self-talk
+
+Xinyue - more internal - internal locus more eager for success and result-driven
+Alvin - change overtime - emphasis on adaptability of control when you grow older
